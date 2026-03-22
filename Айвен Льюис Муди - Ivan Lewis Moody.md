@@ -1,2 +1,0 @@
-- вокалист группы [[Five Finger Death Punch - FFDP]]. 
-- так же известен под псевдонимом Ghost и играл в группе [[motograter]]![[images(10).jpg]]
